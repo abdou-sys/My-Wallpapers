@@ -1,1 +1,7 @@
 ![Knight](Knight.png)
+![aesthetic](asthetic.png)
+![sunset](biking-sunset.png)
+![cool](cool.png)
+![linux-cmds](linux-cmds.png)
+![samurai](samurai.png)
+![wtvr](wtvr.png)

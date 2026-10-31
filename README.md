@@ -5,3 +5,8 @@
 ![linux-cmds](linux-cmds.png)
 ![samurai](samurai.jpg)
 ![wtvr](wtvr.jpg)
+![leACjQ9](leACjQ9.png)
+![psl1hwbiae1d1](psl1hwbiae1d1.jpeg)
+![sushi](sushi.jpg)
+![wallhaven-2e2xyx](wallhaven-2e2xyx.jpg)
+![wallhaven-rqyqkj](wallhaven-rqyqkj.png)
